@@ -1,1 +1,3 @@
 # Mysore-Pak
+Mysore pak is an Indian sweet prepared in ghee. It originated in the city of Mysuru, one of the major cities in the Indian state of Karnataka. It is made of generous amounts of ghee, sugar, gram flour, and often cardamom. The texture of this sweet is similar to a buttery and dense cookie.
+This original royal sweet dish "Mysore Pak" over years has gone through minor changes in ingredients, texture with many claiming its variants as their own invention. 
